@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sreerajreddy
-- 👀 I’m interested in DevOps and App Dev
+- 👀 Cloud and DevOps Enthusiast
 - 📫 To reach me- Contact No: +91 8247292256, E-mail: sreerajreddy110@gmail.com
 
 
